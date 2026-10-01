@@ -1,0 +1,2 @@
+# premium-pattern-make-001-pattern-making-shrinkage-all
+Every heritage-iron-founding professionals needs this — most just don't know it yet.  Pre-built databases, views, and formula fields — ready to duplicate and use. Fully documented: every section explained so you know exactly what to customize.  ## What's Included  - Pattern Making &amp; Shrinkage Allowance Calculator — fully configured and ready to use
